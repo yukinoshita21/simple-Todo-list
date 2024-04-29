@@ -1,0 +1,1 @@
+buat latihan aja :v
